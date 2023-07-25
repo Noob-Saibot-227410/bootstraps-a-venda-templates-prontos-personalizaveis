@@ -10,7 +10,7 @@ Explore a nossa coleção exclusiva de templates completos Bootstraps personaliz
 
 <hr>
 
-## **DEMONSTRAÇÃO RÁPIDA**🍹🍲 
+## **DEMONSTRAÇÃO RÁPIDA**
 
 <br>
 
