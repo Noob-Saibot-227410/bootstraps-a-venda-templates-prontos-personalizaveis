@@ -1,4 +1,4 @@
-## **TEMPLATES COMPLETOS BOOTSTRAPS PARA PERSONALIZAÇÃO** 🍞🍾🍎🎂🍹
+## **TEMPLATES COMPLETOS BOOTSTRAPS PARA PERSONALIZAÇÃO**
 
 ![Capturar_2023_07_25_15_57_22_854](https://github.com/Noob-Saibot-227410/bootstraps-a-venda-templates-prontos-personalizaveis/assets/115899706/5b8fe55d-19b9-4b8d-9c79-4a45d228df7f)
 
